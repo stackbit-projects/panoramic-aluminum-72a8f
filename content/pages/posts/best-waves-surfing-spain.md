@@ -38,19 +38,66 @@ seo:
 layout: post
 ---
 
-Photo by [George Sultan.](https://www.pexels.com/photo/three-person-about-to-surf-1768784/)
 
-**Surfing** is a surface water sport in which the wave rider, referred to as a surfer, rides on the forward or deep face of a moving wave, which is usually carrying the surfer towards the shore. Waves suitable for surfing are primarily found in the ocean, but can also be found in lakes or in rivers in the form of a standing wave or tidal bore. However, surfers can also utilize artificial waves such as those from boat wakes and the waves created in artificial wave pools.
+With a little research on niche marketing, you will find
+that the main issue when coming up with an idea is to pursue your
+interests. Because if there is a lot of interest and excitement for the
+subject, this desire to do the work and get the marketing activities done will
+also play a positive role.
 
->"Your surfing can get better on every turn, on every wave you catch. Learn to read the ocean better. A big part of my success has been wave knowledge." - Kelly Slater
+Of course, this is not always the case. If you have a lot of enthusiasm for an issue but the size of the market in this area is small and people are not willing to [buy real human website visitors](https://www.targetedwebtraffic.com/), you are actually wasting your time.
 
-Synchronised surfing, Manly Beach, New South Wales, 1938–46 The term surfing refers to the act of riding a wave, regardless of whether the wave is ridden with a board or without a board, and regardless of the stance used. The native peoples of the Pacific, for instance, surfed waves on alaia, paipo, and other such craft, and did so on their belly and knees. The modern-day definition of surfing, however, most often refers to a surfer riding a wave standing up on a surfboard; this is also referred to as stand-up surfing.
+That's why to start niche marketing, we suggest that you
+first select the topics that you are really interested in doing. Take a
+pen and paper and write down all your favorite topics on it. Do not make
+any judgments on the issues at this stage. If you have trouble finding
+your favorite topics at this stage, ask yourself the following questions.
+
+These are just some of the goal setting sharewares that you
+can use. What you need to do at this stage is to carefully consider your
+favorite topics. Of course, it is natural to pay more attention to topics
+such as sports and entertainment. However, do not make any judgments at
+this stage. After a few minutes of asking yourself the above questions,
+you will write a long list.
+
+## Review from a marketing perspective
+
+After preparing the list, in the next step, you should write
+down various ideas and points from the marketing point of view. By doing
+this, you will even discover new topics that you may not be interested in doing
+at the moment. At this stage, you should carefully review the topics and
+write them down somewhere. Write different ideas at the same time. It
+is best to write down the tips at the beginning of the day and then add the
+following to your notes.
+
+Specify a time to stop taking notes. Then, looking at
+each case, ask yourself the following questions.
+ ![](/images/Website%20Traffic%20Packages%20--fe285294.png)
+
+Find and identify those topics in your "marketing"
+list by asking the above questions and getting specific answers. Each of
+the identified topics can be an idea for niche marketing.
+
+Review the performance of topics
+
+There are several websites where you can find trending
+topics. By searching these websites, you will find lucrative ideas for
+niche marketing. Here are some of these methods.
+
+### Check online stores
+
+These include online stores such as Amazon, which sells a
+variety of products. The store offers different categories for its goods,
+each of which includes different sub-categories. By reviewing the
+best-selling products of each sub-category, you will get ideas for niche
+marketing.
+
+#### Check the forums
+
+By looking at forums or forums, you will find out what
+topics people are discussing and what their interests and problems are. In
+addition, forums are a great place to start a niche marketing idea.
 
 <iframe src="https://player.vimeo.com/video/31830780" width="640" height="360" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
 <a href="https://vimeo.com/31830780">Hey Ho Let&#039;s Go Surfing</a> from <a href="https://vimeo.com/nathanoldfield">Nathan Oldfield</a> on <a href="https://vimeo.com">Vimeo</a>.
 
-Another prominent form of surfing is body boarding, when a surfer rides a wave on a bodyboard, either lying on their belly, drop knee, or sometimes even standing up on a body board. Other types of surfing include knee boarding, surf matting (riding inflatable mats), and using foils. Body surfing, where the wave is surfed without a board, using the surfer's own body to catch and ride the wave, is very common and is considered by some to be the purest form of surfing.
-
-Three major subdivisions within standing-up surfing are long boarding and short boarding and these two have several major differences, including the board design and length, the riding style, and the kind of wave that is ridden.
-
-In tow-in surfing (most often, but not exclusively, associated with big wave surfing), a motorized water vehicle, such as a personal watercraft, tows the surfer into the wave front, helping the surfer match a large wave's speed, which is generally a higher speed than a self-propelled surfer can produce. Surfing-related sports such as paddle boarding and sea kayaking do not require waves, and other derivative sports such as kite surfing and windsurfing rely primarily on wind for power, yet all of these platforms may also be used to ride waves. Recently with the use of V-drive boats, Wakesurfing, in which one surfs on the wake of a boat, has emerged. The Guinness Book of World Records recognized a 78 feet (23.8 m) wave ride by Garrett McNamara at Nazaré, Portugal as the largest wave ever surfed, although this remains an issue of much contention amongst many surfers, given the difficulty of measuring a constantly changing mound of water
