@@ -3,10 +3,7 @@ title: Ways to increase the sales of the store site
 subtitle: >-
   Apparently, Japan is covered in magical and irresistibly cute animal
   sanctuaries.
-excerpt: >-
-  Miyagi Zao Fox Village, aka Kitsune Mura, is a popular tourist attraction
-  situated in Shiroishi, Miyagi it based in the Miyagi Zao mountains. Visitors
-  can visit a village where there is a vast population of foxes.
+excerpt: ' These days, designing an online store is one way to make money. But once you build your store, you should not leave it alone. You need to try to increase your online sales, but how? In this content, we will tell you important points about ways to increase online sales. Stay with us.'
 date: '2018-01-11'
 thumb_img_path: /images/holostic_img_cls9-min.png
 thumb_img_alt: A red fox in a rocky forest
