@@ -19,7 +19,7 @@ sections:
         url: /contact
         style: button
 seo:
-  title: Stackbit Fresh Theme
+  title: The Best Benefits of Buying Website Traffic
   description: The preview of the Fresh theme
   extra:
     - name: 'og:type'
