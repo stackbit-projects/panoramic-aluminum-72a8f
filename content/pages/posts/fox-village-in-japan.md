@@ -1,5 +1,5 @@
 ---
-title: Fox Village In Japan
+title: Ways to increase the sales of the store site
 subtitle: >-
   Apparently, Japan is covered in magical and irresistibly cute animal
   sanctuaries.
