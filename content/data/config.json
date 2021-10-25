@@ -55,7 +55,7 @@
             },
             {
                 "label": "GitHub",
-                "url": "t",
+                "url": "https://github.com/jrgnuproject",
                 "style": "icon",
                 "icon_class": "github",
                 "new_window": true
