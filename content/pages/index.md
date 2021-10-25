@@ -20,7 +20,17 @@ sections:
         style: button
 seo:
   title: The Best Benefits of Buying Website Traffic
-  description: The preview of the Fresh theme
+  description: >
+    get into Trageted web traffic that
+
+    changes over the agreements the business more noteworthy advantages.
+
+    Web search tools have over the course of the years been
+
+    vital on settle on the site rank that is set first once the web traffic is
+    set
+
+    up with
   extra:
     - name: 'og:type'
       value: website
